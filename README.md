@@ -1,3 +1,2 @@
-# Truly-Terrifying-Modpack
 
 
